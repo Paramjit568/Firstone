@@ -1,2 +1,0 @@
-# Lobsters are damn good
-
